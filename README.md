@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **c(++,#)**
 
-- 📫 How to reach me **suryasmg2004@gmail.com**
+- 📫 How to reach me **off.suryas@gmail.com**
 
 - ⚡ Fun fact **:for that you can use google**
 
